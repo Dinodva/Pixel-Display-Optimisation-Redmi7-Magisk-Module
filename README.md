@@ -1,0 +1,1 @@
+# Pixel-Display-Optimisation-Redmi7-Magisk-Module
